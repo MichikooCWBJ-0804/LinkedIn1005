@@ -1,0 +1,2 @@
+# LinkedIn1005
+１０月５日時点のLinkedinコミュニティの集計
